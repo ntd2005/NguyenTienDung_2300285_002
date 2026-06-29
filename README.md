@@ -1,4 +1,4 @@
-<img width="1140" height="732" alt="cau1" src="https://github.com/user-attachments/assets/fbd4a53a-d263-4b9a-ba51-c465b06fbf35" />
+
 <img width="1121" height="115" alt="Ảnh chụp màn hình 2026-06-29 101249" src="https://github.com/user-attachments/assets/074f9c56-d516-47db-86a4-354b6ffef783" />
 
 câu 1
